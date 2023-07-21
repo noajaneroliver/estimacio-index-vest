@@ -1,1 +1,0 @@
-# estimacio-index-vest
